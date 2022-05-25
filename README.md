@@ -13,5 +13,5 @@ Coming from the coworking spaces universe, I'm happy to combine my skill on desi
 
 ## Portofolio
 Linkedin :
-https://www.linkedin.com/in/k%C3%A9vin-lavigne</br>
+www.linkedin.com/in/LavigneKevin</br>
 🪡 in construction.. (WIP)
